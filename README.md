@@ -16,7 +16,7 @@ Feel free to browse, read, and reference the content here. Each post is availabl
 ## 👉 Check Out the Original Blog Posts
 
 Want the pretty version with formatting, memes, and context?  
-📎 Visit my Medium: [https://medium.com/@yourusername](https://medium.com/@Ethical_DarKVoicE)
+📎 Visit my Medium: [https://medium.com/@Ethical_DarKVoicE]
 
 ---
 
